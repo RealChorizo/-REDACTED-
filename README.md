@@ -2,7 +2,7 @@
 ##  This platform will be used as Proof of Concept for future investors in the technology
 _I don't know code, but I can communicate and get ANYTHING done, is my attitude._
 
-I am leading this project with 6 years of Project Management practice in Construction of City Assets and currently my 3rd year in the General Contracting side Project Managing Multi-Family Developments. 
+I am leading this project with 6 years of Project Management practice in Construction of City Assets and currently in my 3rd year  Project Managing Multi-Family Developments with a General Contracting company. 
 
 This platform is not necessary, but it is something I can find use of. 
 
